@@ -4,4 +4,4 @@ My first homework
 
 
 Pesho
-Gosho
+Gosho i az
